@@ -1,16 +1,3 @@
-ikan hiu ikan tongkol
-yang baca kayak kont00l
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-⬇️
-kirim ke teman mu🗿👍👌
+ IKAN HIU IKAN TONGKOL
+ 
+ YANG BACA MIRIP KONTOL
